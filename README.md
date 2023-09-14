@@ -7,5 +7,13 @@ Nuo Xu
 
 ![image](https://github.com/Nuovaxu/ECE444-F2023-Assignment1/assets/114842917/ddc176e9-ce4d-487c-b4d4-7172ab89e2b8)
 
-![image](https://github.com/Nuovaxu/ECE444-F2023-Assignment1/assets/114842917/bf206390-b93a-41c3-823f-c356bb90a7a3)
+![image](https://github.com/Nuovaxu/ECE444-F2023-Assignment1/assets/114842917/d026d839-85b2-4f80-83de-e84bc2aff901)
+
+![image](https://github.com/Nuovaxu/ECE444-F2023-Assignment1/assets/114842917/31210a73-0fb1-4937-bf13-7bf4c68b7f6f)
+
+![image](https://github.com/Nuovaxu/ECE444-F2023-Assignment1/assets/114842917/d595f6fe-d65e-45df-bca2-a968eb379e82)
+
+![image](https://github.com/Nuovaxu/ECE444-F2023-Assignment1/assets/114842917/ab7bf978-859d-4783-a310-a2663f72b34e)
+
+
 
