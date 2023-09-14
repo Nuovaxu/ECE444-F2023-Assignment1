@@ -6,3 +6,6 @@ Nuo Xu
 ![image](https://github.com/Nuovaxu/ECE444-F2023-Assignment1/assets/114842917/2c444ae3-d758-4f61-aa5a-7b54830e183a)
 
 ![image](https://github.com/Nuovaxu/ECE444-F2023-Assignment1/assets/114842917/ddc176e9-ce4d-487c-b4d4-7172ab89e2b8)
+
+![image](https://github.com/Nuovaxu/ECE444-F2023-Assignment1/assets/114842917/bf206390-b93a-41c3-823f-c356bb90a7a3)
+
